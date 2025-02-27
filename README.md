@@ -9,3 +9,4 @@ De adăugat în acest repozitoriu cîteva ﬁșiere și de făcut modiﬁcări �
 Să adăugați în calitate de membri a echipei 2 colegi, si profesorul
 (tatianamelnic24@gmail.com).
 
+thats it, right?
